@@ -1,4 +1,4 @@
-
+advanced PureVPN Connector | server-locations + streaming-optimization offers the most advanced PureVPN connector, with server-locations and streaming-optimization. Ideal for
 
 
 
